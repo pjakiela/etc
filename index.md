@@ -1,6 +1,8 @@
-# Media Coverage
+# Etc.
 
-# Blog Posts
+## Media Coverage
 
-# Other Links
+## Blog Posts
+
+## Other Links
 
