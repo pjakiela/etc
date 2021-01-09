@@ -1,4 +1,4 @@
-# Etc.
+# [Etc.](http://www.pamjakiela.com)
 
 ## Media Coverage
 
