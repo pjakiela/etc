@@ -12,6 +12,8 @@ Keynote, Symposium on Economic Experiments in Developing Countries (May 2019)
 [Gendered Language](https://www.youtube.com/watch?v=_NNDUEhzU_Q&feature=youtu.be)  
 Centre for the Study of African Economies Conference at Oxford (March 2018)  
 
+<br>
+
 ## Media Coverage
 
 [Washington Post: Teens leading the charge to eliminate gender in language](https://www.washingtonpost.com/dc-md-va/2019/12/05/teens-argentina-are-leading-charge-gender-neutral-language/?arc404=true)  (December 2019)  
@@ -26,6 +28,8 @@ Centre for the Study of African Economies Conference at Oxford (March 2018)
 [Vox.com: The Recession Made Us All More Selfish](http://www.vox.com/2014/6/1/5755558/the-recession-made-us-all-more-selfish) (June 2014)  
 [World Bank's Development Impact Blog](http://blogs.worldbank.org/impactevaluations/pull-him-down-how-about-pull-her-down) (October 2012)  
 
+<br>
+
 ## Blog Posts
 
 [CGD:  Doing Well in Life? Thank Your Big Sister](https://www.cgdev.org/blog/doing-well-life-thank-your-big-sister)  
@@ -37,7 +41,13 @@ Centre for the Study of African Economies Conference at Oxford (March 2018)
 [CGD:  Is the Donor Agenda for the SDGs Making Aid a Tool of Inequity?](https://www.cgdev.org/blog/donor-agenda-sdgs-making-aid-tool-inequity)  
 [CGD:  We Can’t Measure Women’s Empowerment the Same Way Everywhere](https://www.cgdev.org/blog/we-cant-measure-womens-empowerment-same-way-everywhere-should-we-try)  
 
-## Other Links
+<br>
+
+## Consumption/Leisure
 
 [Recipes](https://pjakiela.github.io/recipes/)
+
+## Links
+
+
 
