@@ -3,7 +3,7 @@
 ## Talks
 
 [A Firm of One’s Own: Experimental Evidence on Credit Constraints and Occupational Choice](https://youtu.be/A-VK9y7aaaU)  
-NOVAfrica Seminar Series  
+NOVAfrica Seminar Series   
 (December 2020)  
 
 [Taking Preferences Seriously, Not Literally](https://berkeley-haas.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=b07cf1d7-fc1e-492f-abfd-aa5c012ae89e)  
@@ -12,7 +12,7 @@ Keynote, Symposium on Economic Experiments in Developing Countries
 [Slides](http://pamjakiela.com/jakiela-seedec-keynote.pdf)  
 
 [Gendered Language](https://www.youtube.com/watch?v=_NNDUEhzU_Q&feature=youtu.be)  
-Centre for the Study of African Economies Conference at Oxford  
+Centre for the Study of African Economies Conference at Oxford   
 (March 2018)  
 
 <br>
