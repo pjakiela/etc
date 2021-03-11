@@ -3,35 +3,52 @@
 ## Talks
 
 [A Firm of One’s Own: Experimental Evidence on Credit Constraints and Occupational Choice](https://youtu.be/A-VK9y7aaaU)  
-NOVAfrica Seminar Series  (December 2020)  
+NOVAfrica Seminar Series  
+(December 2020)  
 
 [Taking Preferences Seriously, Not Literally](https://berkeley-haas.hosted.panopto.com/Panopto/Pages/Viewer.aspx?id=b07cf1d7-fc1e-492f-abfd-aa5c012ae89e)  
-Keynote, Symposium on Economic Experiments in Developing Countries (May 2019)  
+Keynote, Symposium on Economic Experiments in Developing Countries  
+(May 2019)  
 [Slides](http://pamjakiela.com/jakiela-seedec-keynote.pdf)  
 
 [Gendered Language](https://www.youtube.com/watch?v=_NNDUEhzU_Q&feature=youtu.be)  
-Centre for the Study of African Economies Conference at Oxford (March 2018)  
+Centre for the Study of African Economies Conference at Oxford  
+(March 2018)  
 
 <br>
 
 ## Media Coverage
 
-[NPR Morning Edition: What Impact Can Having An Older Sister Have On A Child's Development?](https://www.npr.org/2020/12/16/947027225/what-impact-can-having-an-older-sister-have-on-a-childs-development) (December 2020)  
-[NPR Goats and Soda: The Secret To Success? Having A Big Sister](https://www.npr.org/sections/goatsandsoda/2020/12/17/947566797/the-secret-to-success-having-a-big-sister)  (December 2020)  
-[NBC's TODAY: Are big sisters the key to success? New research suggests yes](ttps://www.today.com/health/birth-order-are-big-sisters-key-success-t204701) (December 2020)  
-[Yahoo: We’re Placing Too Much Burden On The Big Sisters](https://www.yahoo.com/lifestyle/placing-too-much-burden-big-020036343.html) (December 2020)   
-[The Telegraph: Children with older sisters in developing countries do better](https://www.telegraph.co.uk/global-health/women-and-girls/children-older-sisters-developing-countries-do-better-study/amp/) (October 2020)   
-[Washington Post: Teens leading the charge to eliminate gender in language](https://www.washingtonpost.com/dc-md-va/2019/12/05/teens-argentina-are-leading-charge-gender-neutral-language/?arc404=true)  (December 2019)  
-[El Pais: Puede el idioma limitar las oportunidades de las mujeres?](https://elpais.com/internacional/2019/03/18/actualidad/1552935977_717400.html) (March 2019)  
-[Four Questions Podcast with Alice Evans](https://soundcloud.com/user-845572280/does-violence-increase-risk-aversion-drs-pamela-jakiela-owen-ozier) (April 2018)  
-[NPR: An Experiment Gives Cash Aid To The Poor. Is That Ethical?](https://www.npr.org/sections/goatsandsoda/2017/09/13/542261863/cash-aid-changed-this-family-s-life-so-why-is-their-government-skeptical) (September 2017)  
-[New York Times: How a Quest by Elites Is Driving ‘Brexit’ and Trump](http://www.nytimes.com/2016/07/03/upshot/how-a-quest-by-elites-is-driving-brexit-and-trump.html?em_pos=small&emc=edit_up_20160701&nl=upshot&nl_art=0&nlid=56075707&ref=headline&te=1&_r=0) (July 2016)  
-[Ars Technica: The elite don't hand out resources like the rest of us](http://arstechnica.co.uk/science/2015/09/the-elite-dont-hand-out-resources-like-the-rest-of-us/) (September 2015)  
-[Slate: Why Income Inequality Isn't Going Anywhere](http://www.slate.com/articles/news_and_politics/the_dismal_science/2015/09/income_inequality_rich_democrats_don_t_care_about_the_problem_any_more_than.html) (September 2015)  
-[The Atlantic: Why Politicians Don't Level the Playing Field](http://www.citylab.com/work/2015/09/why-politicians-dont-level-the-playing-field/405619/) (September 2015)  
-[Toronto Star: Study puts spotlight on elite's self-interest](http://www.thestar.com/news/world/2015/09/18/study-puts-spotlight-on-elites-self-interest.html) (September 2015)  
-[Vox.com: The Recession Made Us All More Selfish](http://www.vox.com/2014/6/1/5755558/the-recession-made-us-all-more-selfish) (June 2014)  
-[World Bank's Development Impact Blog](http://blogs.worldbank.org/impactevaluations/pull-him-down-how-about-pull-her-down) (October 2012)  
+[NPR Morning Edition: What Impact Can Having An Older Sister Have On A Child's Development?](https://www.npr.org/2020/12/16/947027225/what-impact-can-having-an-older-sister-have-on-a-childs-development)  
+(December 2020)  
+[NPR Goats and Soda: The Secret To Success? Having A Big Sister](https://www.npr.org/sections/goatsandsoda/2020/12/17/947566797/the-secret-to-success-having-a-big-sister)    (December 2020)  
+[NBC's TODAY: Are big sisters the key to success? New research suggests yes](ttps://www.today.com/health/birth-order-are-big-sisters-key-success-t204701)  
+(December 2020)  
+[Yahoo: We’re Placing Too Much Burden On The Big Sisters](https://www.yahoo.com/lifestyle/placing-too-much-burden-big-020036343.html)  
+(December 2020)   
+[The Telegraph: Children with older sisters in developing countries do better](https://www.telegraph.co.uk/global-health/women-and-girls/children-older-sisters-developing-countries-do-better-study/amp/)  
+(October 2020)   
+[Washington Post: Teens leading the charge to eliminate gender in language](https://www.washingtonpost.com/dc-md-va/2019/12/05/teens-argentina-are-leading-charge-gender-neutral-language/?arc404=true)  
+(December 2019)  
+[El Pais: Puede el idioma limitar las oportunidades de las mujeres?](https://elpais.com/internacional/2019/03/18/actualidad/1552935977_717400.html)  
+(March 2019)  
+[Four Questions Podcast with Alice Evans](https://soundcloud.com/user-845572280/does-violence-increase-risk-aversion-drs-pamela-jakiela-owen-ozier)  
+(April 2018)  
+[NPR: An Experiment Gives Cash Aid To The Poor. Is That Ethical?](https://www.npr.org/sections/goatsandsoda/2017/09/13/542261863/cash-aid-changed-this-family-s-life-so-why-is-their-government-skeptical)  
+(September 2017)  
+[New York Times: How a Quest by Elites Is Driving ‘Brexit’ and Trump](http://www.nytimes.com/2016/07/03/upshot/how-a-quest-by-elites-is-driving-brexit-and-trump.html?em_pos=small&emc=edit_up_20160701&nl=upshot&nl_art=0&nlid=56075707&ref=headline&te=1&_r=0)  
+(July 2016)  
+[Ars Technica: The elite don't hand out resources like the rest of us](http://arstechnica.co.uk/science/2015/09/the-elite-dont-hand-out-resources-like-the-rest-of-us/)   (September 2015)  
+[Slate: Why Income Inequality Isn't Going Anywhere](http://www.slate.com/articles/news_and_politics/the_dismal_science/2015/09/income_inequality_rich_democrats_don_t_care_about_the_problem_any_more_than.html)  
+(September 2015)  
+[The Atlantic: Why Politicians Don't Level the Playing Field](http://www.citylab.com/work/2015/09/why-politicians-dont-level-the-playing-field/405619/)  
+(September 2015)  
+[Toronto Star: Study puts spotlight on elite's self-interest](http://www.thestar.com/news/world/2015/09/18/study-puts-spotlight-on-elites-self-interest.html)  
+(September 2015)  
+[Vox.com: The Recession Made Us All More Selfish](http://www.vox.com/2014/6/1/5755558/the-recession-made-us-all-more-selfish)  
+(June 2014)  
+[World Bank's Development Impact Blog](http://blogs.worldbank.org/impactevaluations/pull-him-down-how-about-pull-her-down)  
+(October 2012)  
 
 <br>
 
