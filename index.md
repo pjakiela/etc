@@ -16,6 +16,11 @@ Centre for the Study of African Economies Conference at Oxford (March 2018)
 
 ## Media Coverage
 
+[NPR Morning Edition: What Impact Can Having An Older Sister Have On A Child's Development?](https://www.npr.org/2020/12/16/947027225/what-impact-can-having-an-older-sister-have-on-a-childs-development) (December 2020)  
+[NPR Goats and Soda: The Secret To Success? Having A Big Sister](https://www.npr.org/sections/goatsandsoda/2020/12/17/947566797/the-secret-to-success-having-a-big-sister)  (December 2020)  
+[NBC's TODAY: Are big sisters the key to success? New research suggests yes](ttps://www.today.com/health/birth-order-are-big-sisters-key-success-t204701) (December 2020)  
+[Yahoo: We’re Placing Too Much Burden On The Big Sisters](https://www.yahoo.com/lifestyle/placing-too-much-burden-big-020036343.html) (December 2020)   
+[The Telegraph: Children with older sisters in developing countries do better](https://www.telegraph.co.uk/global-health/women-and-girls/children-older-sisters-developing-countries-do-better-study/amp/) (October 2020)   
 [Washington Post: Teens leading the charge to eliminate gender in language](https://www.washingtonpost.com/dc-md-va/2019/12/05/teens-argentina-are-leading-charge-gender-neutral-language/?arc404=true)  (December 2019)  
 [El Pais: Puede el idioma limitar las oportunidades de las mujeres?](https://elpais.com/internacional/2019/03/18/actualidad/1552935977_717400.html) (March 2019)  
 [Four Questions Podcast with Alice Evans](https://soundcloud.com/user-845572280/does-violence-increase-risk-aversion-drs-pamela-jakiela-owen-ozier) (April 2018)  
@@ -34,6 +39,7 @@ Centre for the Study of African Economies Conference at Oxford (March 2018)
 
 [CGD:  Doing Well in Life? Thank Your Big Sister](https://www.cgdev.org/blog/doing-well-life-thank-your-big-sister)  
 [CGD:  A Nobel Prize for the Randomistas](https://www.cgdev.org/blog/nobel-prize-randomistas)  
+[Development Impact:  What Are We Estimating When We Estimate Difference-in-Differences?](https://blogs.worldbank.org/impactevaluations/what-are-we-estimating-when-we-estimate-difference-differences)  
 [CGD:  Mind the Gap: 5 Facts About The Gender Gap in Education](https://www.cgdev.org/blog/mind-gap-5-facts-about-gender-gap-education)  
 [CGD:  What Are We Learning from Lab-in-the-Field Experiments in Developing Countries?](https://www.cgdev.org/blog/what-are-we-learning-lab-field-experiments-developing-countries)  
 [CGD:  Take a Vacation from Economics: Anthropology Books to Read This Winter](https://www.cgdev.org/blog/take-vacation-economics-anthropology-books-read-winter)  
