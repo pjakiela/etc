@@ -17,5 +17,5 @@ The dean’s office has received a number of emails asking for clarification on 
 
 We hope you’ll find these tips useful as you prepare for the upcoming return to in-person teaching!  A number of faculty have asked what additional resources are available to support them as they develop in-person, definitely-not-hybrid pedagogical approaches suited to the upcoming fall term.  Here in the dean’s office, we like to say that we have the best faculty of any university in the world.  We know you've got it all under control.  Have a great fall semester!
 
-
+_Please note:  this is satire._
 
