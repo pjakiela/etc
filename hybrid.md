@@ -1,6 +1,6 @@
 ### No, This Is Definitely NOT Hybrid Instruction  
 
-_Please note:  this is satire._
+_Please note:  this is satire, and completely fictional._
 
 The dean’s office has received a number of emails asking for clarification on the teaching modality that will be used in the upcoming fall semester.  To be clear:  this semester we will be in-person.  We here at the dean’s office anticipate a normal, traditional, business-as-usual in-person semester that is most definitely not hybrid. Here is a guide to the many differences between last spring's now-completely-unnecessary, obviously-no-longer-relevant hybrid system and this fall’s definitely-not-hybrid semester, with helpful tips for effective, totally normal in-person teaching.
  
