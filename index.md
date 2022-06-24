@@ -52,11 +52,7 @@ Centre for the Study of African Economies Conference at Oxford
 
 <br>
 
-## Consumption/Leisure
 
-[Recipes](https://pjakiela.github.io/recipes/)
-
-## Links
 
 
 
